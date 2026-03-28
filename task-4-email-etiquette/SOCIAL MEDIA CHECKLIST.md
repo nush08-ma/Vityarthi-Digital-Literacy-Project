@@ -18,6 +18,6 @@
 
 3.Don’t Click Suspicious Links: Avoid those Win a free gift links as they are usually scams.
 
-4. Don’t Ignore Your Digital Footprint: Don’t assume Deleted  means Gone Forever it is possible that someone may have taken a screenshot.
+4.Don’t Ignore Your Digital Footprint: Don’t assume Deleted  means Gone Forever it is possible that someone may have taken a screenshot.
  
 5.Don’t Plagiarize Content: Don’t copy someone else’s caption or artwork and post it as your own without giving them credit.
